@@ -1,6 +1,8 @@
 # CO1111
 
-Indeed cool.
+not that cool
 
 
 testing 
+
+Experiencing life in a whole new way woah man.
